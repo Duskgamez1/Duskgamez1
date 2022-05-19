@@ -1,0 +1,4 @@
+- 👋 Oi eu sou o @Duskgamez1
+- 👀 Estou interessado: amizades
+- 🌱 Atualmente estou aprendendo: a desenhar, música
+- 💞️ Pretendo colaborar em: amizades
